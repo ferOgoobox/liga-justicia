@@ -1,3 +1,0 @@
-## Historia de flash
-
-Flash es un personaje de cómic creado por DC Comics en 1940. Su nombre real es Barry Allen, un científico forense que obtiene sus superpoderes después de ser alcanzado por un rayo mientras trabajaba en su laboratorio. Como Flash, puede correr a velocidades increíbles, lo que le permite salvar vidas y luchar contra villanos. A lo largo de los años, ha tenido varios compañeros de equipo y ha sido miembro de varias encarnaciones de los Jóvenes Titanes, la Liga de la Justicia y otros grupos de superhéroes. Flash es considerado uno de los personajes más icónicos de DC Comics y ha aparecido en numerosos cómics, programas de televisión y películas.
